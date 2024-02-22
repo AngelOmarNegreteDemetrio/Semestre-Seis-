@@ -1,2 +1,0 @@
-# Semestre-Seis-
-mis practicas 
